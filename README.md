@@ -1,1 +1,0 @@
-# kirtiverma.github.io
